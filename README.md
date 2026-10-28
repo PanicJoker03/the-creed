@@ -9,6 +9,10 @@ The Contract Is Sacred.
  Nothing Is Personal.
  
  Anything Outside the Work Is a Distraction.
+
+## What are our tools?
+
+A laptop, powerfull as your needs need, as a operational center.
  
 ## Why?
 
